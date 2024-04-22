@@ -1,22 +1,46 @@
-<b><h2 style="text-align:center";><font 
-color='#a8a6ab'>𝐒</font><font 
-color='#a8a6ab'>𝐚</font><font 
-color='#a8a6ab'>𝐧</font><font
-color='#a8a6ab'>𝐳</font><font 
-color='#a8a6ab'> </font><font 
-color='#a8a6ab'>𝐒</font><font 
-color='#a8a6ab'>𝐓</font><font    
-color='#a8a6ab'>𝐎</font><font
-color='#a8a6ab'>𝐑</font><font
-color='#a8a6ab'>𝐄</font><font
-color='#00FF1D'> </font><font 
-color='#FFCC00'>𝐓</font><font 
-color='#FFCC00'>𝐮</font><font 
-color='#FFCC00'>𝐧</font><font 
-color='#FFCC00'>𝐧</font><font 
-color='#FFCC00'>𝐞</font><font 
-color='#FFCC00'>𝐥</font><font  
-color='#FFCC00'></font></b><br><br>
-<b><h2 style="text-align:center";><font 
-<font color="white">Order: t.me/sanzstores</font><br>
-<font color="white">Order : 628×××</font><br>
+<p style="text-align:center"> <font color='#FF0059'>▬</font><font
+
+color='#F1006F'>▬</font><font color='#E30085'>▬</font><font
+
+color='#D6009B'>▬</font><font color='#C800B1'>▬</font><font
+
+color='#BB00C7'>ஜ</font><font color='#AD00DD'>۩</font><font
+
+color='#9F00F3'>۞</font><font color='#9F00F3'>۩</font><font
+
+color='#AD00DD'>ஜ</font><font color='#BB00C7'>▬</font><font
+
+color='#C800B1'>▬</font><font color='#D6009B'>▬</font><font
+
+color='#E30085'>▬</font><font color='#F1006F'>▬</font><br> <font
+
+color="#F5FE00"><b> --- 卍 LAYANAN VPN PREMIUM 卐  --- </b></font><br> <font
+
+color='red'>! TERM OF SERVICE !</font><br> <font color='#20CDCC'><b> NO SPAM
+
+</b></font><br> <font color='#10C7E5'><b> NO DDOS </b></font><br> <font
+
+color='#00C1FF'><b> NO HACKING AND CARDING </b></font><br> <font
+
+color="#E51369"><b> NO TORRENT!!  </b> </font><br> <font color="#E51369"><b> NO
+
+MULTI LOGIN!!  </b> <font
+
+color='#FF0059'>▬</font><font color='#F1006F'>▬</font><font
+
+color='#E30085'>▬</font><font color='#D6009B'>▬</font><font
+
+color='#C800B1'>▬</font><font color='#BB00C7'>ஜ</font><font
+
+color='#AD00DD'>۩</font><font color='#9F00F3'>۞</font><font
+
+color='#9F00F3'>۩</font><font color='#AD00DD'>ஜ</font><font
+
+color='#BB00C7'>▬</font><font color='#C800B1'>▬</font><font
+
+color='#D6009B'>▬</font><font color='#E30085'>▬</font><font
+
+color='#F1006F'>▬</font>
+</font><br> <font color="#483D8B"><b> Order vpn premium: <br>
+
+Telegram : t.me/roz_zero<br> WhatsApp: wa.me/6282120919842</font><br> 
